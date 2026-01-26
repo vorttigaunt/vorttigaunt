@@ -1,11 +1,10 @@
 <p align="center">
-<img width="900" height="400" src="https://64.media.tumblr.com/692a114e0ac56880d01776146e37b25f/96d52d0e1d80a25a-00/s1280x1920/979ed5c017d2f82115b187fc777ba11c8e812072.pnj">
+<img width="400" height="500" src="https://64.media.tumblr.com/c9269c50d7c73e7f283943199a82cfa8/5a3a966ebdd14d26-ab/s400x600/2f033d9dbcf062c72f518c2b8c6b743d4d6831b4.pnj">
 </p>
 
 <p align="center">
  <a href="https://tuileriies.straw.page">straw</a> 
   <a href="https://godheadsilo.atabook.org/">ata</a> 
- <a href="https://rentry.co/bonapartte">rentry</a>
 </p>
 
 <p align="center">
