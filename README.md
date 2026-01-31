@@ -8,7 +8,7 @@
 </p>
 
 <p align="center">
-i dont know bro..sign my straw or ata
+c+h always. i spam follow, block if unwanted ok..? sign ata
 </p>
 
 <p align="center">
