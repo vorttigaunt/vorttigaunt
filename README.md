@@ -1,5 +1,5 @@
 <p align="center">
-<img width="400" height="500" src="https://64.media.tumblr.com/c9269c50d7c73e7f283943199a82cfa8/5a3a966ebdd14d26-ab/s400x600/2f033d9dbcf062c72f518c2b8c6b743d4d6831b4.pnj">
+<img width="400" height="500" src="file:///home/chronos/u-edc71ec4b9bcbb2827d7bffd0573a047a83e8dd4/MyFiles/Downloads/nap1.png">
 </p>
 
 <p align="center">
@@ -8,7 +8,7 @@
 </p>
 
 <p align="center">
-this account is lowkirkenuinely for ponies that dont match my main theme ok
+i dont know bro..sign my straw or ata
 </p>
 
 <p align="center">
