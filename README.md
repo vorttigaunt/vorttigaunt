@@ -1,13 +1,13 @@
 <p align="center">
-<img width="700" height="600" src="https://64.media.tumblr.com/7481f4a81fc0fa4acd9b8e4122262b08/efa59677884e5c34-ea/s1280x1920/ed4b9c34744d6a90e57f772c2cd0f60ea9d0b026.pnj">
+<img width="700" height="600" src="https://64.media.tumblr.com/13c972c169d3123401290a8145bb2e23/c56a4856587bf371-4a/s1280x1920/a1573b18c16c0af15c1d2c35d5a9eae68af0f927.pnj">
 </p>
 
 <p align="center">
-<img width="700" height="600" src="https://64.media.tumblr.com/33b5013750a3d320eef794ef42777763/902c4180f00a7582-de/s1280x1920/7e18f31a79ee393b5db3f001f5f5cdbd5500fb44.pnj">
+<img width="700" height="600" src="https://64.media.tumblr.com/0d621151bb1f7e0b1b265387edd07348/97e8ef03d51fd2c5-c3/s1280x1920/fc0fbc873af9d4a2d56bb99321c43904c815efaa.pnj">
 </p>
 
 <p align="center">
- <a href="https://tuileriies.straw.page">straw</a> 
+ <a href="https://potatoslament.straw.page">straw</a> 
   <a href="https://godheadsilo.atabook.org/">ata</a> 
 </p>
 
@@ -22,5 +22,5 @@ c + h pls pls plss . . . spam follow acc , block if unwanted ^ _ ^
 </p>
 
 <p align="center">
-<img width="700" height="600" src="https://64.media.tumblr.com/7481f4a81fc0fa4acd9b8e4122262b08/efa59677884e5c34-ea/s1280x1920/ed4b9c34744d6a90e57f772c2cd0f60ea9d0b026.pnj">
+<img width="700" height="600" src="https://64.media.tumblr.com/80a6f179dfada359645509cc93cc15bb/c56a4856587bf371-31/s1280x1920/4a776d79e35b614a02d73fb6872be453b5e605fe.pnj">
 </p>
